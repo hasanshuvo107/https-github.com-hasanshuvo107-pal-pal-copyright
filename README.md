@@ -1,0 +1,1 @@
+# https-github.com-hasanshuvo107-pal-pal-copyright
